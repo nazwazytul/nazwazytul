@@ -7,6 +7,7 @@ This is the place where I opensource stuff and break things :rofl:
 - 💬 &nbsp;Ask me if you wanna know me
 - 👨‍💻 &nbsp;Nice to meet youuuuu
 - ⚡ &nbsp;I like watching and studiying
+  
 🔗 &nbsp;**Connect with me**
 <p align="left"> 
 <a href="https://instagram.com/nazwa.nazzytul" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg"nazwa.nazzytul" height="30" width="40" /></a>
