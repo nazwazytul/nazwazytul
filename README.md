@@ -5,7 +5,7 @@ this is where i learned github :rofl:
 - 🌱 &nbsp;I’m student
 - 💬 &nbsp;Ask me if you wanna know me
 - 👨‍💻 &nbsp;Nice to meet youuuuu
-- ⚡ &nbsp;I like watching and studiying
+- ⚡ &nbsp;I like watching, sport, and playing game
   
 🔗 &nbsp;**Connect with me**
 <p align="left"> 
