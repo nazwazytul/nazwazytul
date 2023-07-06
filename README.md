@@ -2,7 +2,7 @@
 this is where i learned github :rofl:
 
 - 🔭 &nbsp;I’m currently working on something cool :wink:
-- 🌱 &nbsp;I’m currentl studiying
+- 🌱 &nbsp;I’m student
 - 💬 &nbsp;Ask me if you wanna know me
 - 👨‍💻 &nbsp;Nice to meet youuuuu
 - ⚡ &nbsp;I like watching and studiying
